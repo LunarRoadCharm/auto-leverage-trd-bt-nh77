@@ -1,4 +1,4 @@
-# 
+# elite okx trading bot addons is the best okx trading bot addons with liquidation-sniping and risk-management. Safe, reliable, and optimized for CEX, DEX, and algorithmic trading
 
 
 
